@@ -7,5 +7,5 @@
  However he was unable to hatch.
  This fact angered him so much at he began to dispise the world around him.
  Finally, one year ago, a crack formed along his egg as his hatred broke through the confines of his prison.
- Now freed, it is your job to stop him with you wand of eternal power and save the world.
+ Now freed, it is time you the great hero Tod do your job and stop him with your wand of eternal power and save the world.
 <img width="1200" height="1200" alt="Dragon(CH2025)" src="https://github.com/user-attachments/assets/0d2f7470-8c8e-4a02-b80b-6deceea8caf7" />
